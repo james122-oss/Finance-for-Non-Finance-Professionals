@@ -1,6 +1,6 @@
 # Finance for Non-Finance Professionals
 Rice University
 
-# Click to Join Discussion Community ⬇️
+# Click to Join Discussion Community Below ⬇️
 
-➡️ [Your Link Here](https://chat.whatsapp.com/JQgNdtN1LN64QXGcpySUKD?mode=r_t)
+➡️ (https://chat.whatsapp.com/JQgNdtN1LN64QXGcpySUKD?mode=r_t)
